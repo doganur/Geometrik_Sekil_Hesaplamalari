@@ -1,0 +1,1 @@
+# Geometrik_Sekil_Hesaplamalari
